@@ -1,2 +1,3 @@
-# Currency
-exchange your btc, and withdraw 
+Full stack developer
+tech specialist
+Digital marketer 
