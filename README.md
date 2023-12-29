@@ -1,4 +1,4 @@
-
+Hi 👋 I'm Michael 
 Hello, my name is
 Michael Christopher
 And I'm a Developer, YouTuber, Educator, Web designer , Graphic Designer..
